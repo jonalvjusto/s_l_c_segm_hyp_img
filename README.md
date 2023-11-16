@@ -7,5 +7,5 @@ The material will be available in the next weeks. <br>
 In case of any question or inquiry, you may contact us by email: jon.a.justo@ntnu.no.
 
 Best regards, <br>
-Jon A. Justo (24/10/2023 22:09 GMT)
+Jon A. Justo (16/11/2023)
 
